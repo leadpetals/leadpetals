@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning:javascript
 - 💞️ I’m looking to collaborate on:nothing currently
 - 📫 How to reach me:leadpetals on discord
-- 😄 Pronouns:he/him
+- 😄 Pronouns:lead/petals
 - ⚡ Fun fact:im slow
